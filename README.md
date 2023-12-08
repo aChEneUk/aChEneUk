@@ -1,6 +1,3 @@
-![𝐖𝐞𝐛 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫](https://scontent.fdac151-1.fna.fbcdn.net/v/t39.30808-6/409122613_354157857217704_5654167817996426878_n.png?stp=dst-png_s960x960&_nc_cat=106&ccb=1-7&_nc_sid=783fdb&_nc_eui2=AeErVOcZHxPuwo28nTV7wI3WpytzPT4wvOunK3M9PjC862NVIt4AAPtsRbDDuhZ2I5k2n201L9VCQmmnGBVqh7jm&_nc_ohc=MJbciiQpVVgAX8bZFkd&_nc_ht=scontent.fdac151-1.fna&oh=00_AfBO-KRLL_N6k8vq16Dp6WzRbHW7I28FGWAAw2RXGMS8EQ&oe=6577A0B1)
-
-
 ### Hi there 👋, 𝐈𝐚𝐦 𝐚𝐂𝐡𝐄𝐧𝐞𝐔𝐤
 #### 𝐖𝐞𝐛 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫
 ![𝐖𝐞𝐛 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫](https://scontent.fdac151-1.fna.fbcdn.net/v/t39.30808-6/409122613_354157857217704_5654167817996426878_n.png?stp=dst-png_s960x960&_nc_cat=106&ccb=1-7&_nc_sid=783fdb&_nc_eui2=AeErVOcZHxPuwo28nTV7wI3WpytzPT4wvOunK3M9PjC862NVIt4AAPtsRbDDuhZ2I5k2n201L9VCQmmnGBVqh7jm&_nc_ohc=MJbciiQpVVgAX8bZFkd&_nc_ht=scontent.fdac151-1.fna&oh=00_AfBO-KRLL_N6k8vq16Dp6WzRbHW7I28FGWAAw2RXGMS8EQ&oe=6577A0B1)
